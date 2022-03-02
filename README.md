@@ -1,1 +1,0 @@
-# Artynnn.github.io
